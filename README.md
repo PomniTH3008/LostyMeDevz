@@ -1,4 +1,8 @@
 # Welcome To LostyMeDevz!
 
-Feedback LostyMeDevz Discord: [LostyMeDevz Gang](https://discord.gg/Erw3w8r9xa)
-Feedback LostyMeDevz Email: pomnith3008@gmail.com
+About Us:
+LostyMeDevz Discord: [LostyMeDevz Gang](https://discord.gg/Erw3w8r9xa)
+
+Creator:
+LostyMeDevz Gang Team:
+[Cyn EnemiesDrones](pomnith3008@gmail.com)
